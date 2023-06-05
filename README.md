@@ -1,0 +1,2 @@
+# Planejamento_Estrategico_aplicado_nas_Organizacoes
+Artigo sobre Planejamento Estratégico nas organizações.
